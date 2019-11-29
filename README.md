@@ -91,7 +91,8 @@ https://www.youtube.com/watch?v=ED04jGkp4Sg, 시스템 트레이닝 개괄
 http://www.financipe.com/strategytable, 포트폴리오 예시 
 http://imgstock.naver.com/upload/research/invest/1482796825773.pdf  배당관련 괜찮은 리포트 
 https://lonelyinvest.com/677 배당과 ETF 관련  
-file:///C:/Users/user/Downloads/[%EC%9D%B4%EB%B2%A0%EC%8A%A4%ED%8A%B8%ED%88%AC%EC%9E%90%EC%A6%9D%EA%B6%8C]+%EB%B0%B0%EB%8B%B9%EB%9D%BD%EC%9D%BC+%ED%88%AC%EC%9E%90%EB%B2%95(%EC%97%BC%EB%8F%99%EC%B0%AC+18.12.21).pdf 배당 투자전략 - 괜찮은 시야, 1년전 이용했던 것과 비슷, 따로 올리지는 않겠다. 
+file:///C:/Users/user/Downloads/[%EC%9D%B4%EB%B2%A0%EC%8A%A4%ED%8A%B8%ED%88%AC%EC%9E%90%EC%A6%9D%EA%B6%8C]+%EB%B0%B0%EB%8B%B9%EB%9D%BD%EC%9D%BC+%ED%88%AC%EC%9E%90%EB%B2%95(%EC%97%BC%EB%8F%99%EC%B0%AC+18.12.21).pdf 배당 투자전략 - 괜찮은 시야, 1년전 이용했던 것과 비슷, 따로 올리지는 않겠다.  
+http://www.seibro.or.kr/websquare/control.jsp?w2xPath=/IPORTAL/user/index.xml 세이브로, 예탁원에서 운영하는 좋은 사이트, 각종 국내 주식, 파생 상품에 관한 정보를 한 눈에 보기 쉽게 얻을 수 있다
 
 배당락 연도별 조사 
   연휴가 겹쳐 있어 8년치만 뽑아낸다. 
